@@ -1,0 +1,1 @@
+# stranichka.github.io
